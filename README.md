@@ -1,6 +1,6 @@
-- 👋 Hi, I’m God's child
-- 👀 I’m interested in spreading the gospel
-- 🌱 I’m currently learning to trade crypto and the bible.
+- 👋 Hi, I’m God's child.
+- 👀 I’m interested in spreading the gospel.
+- 🌱 I’m currently learning to trade crypto.
 - 💞️ I’m looking to collaborate on a project that helps a pesron find their things.
 - 📫 How to reach me: email hlda2000@yahoo.com
 
